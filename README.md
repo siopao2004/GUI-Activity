@@ -1,7 +1,7 @@
 # GUI-Activity
 
 
-I forgot the snapshot for repository, mianhe mianhe hajima~~
+I forgot the snapshot for repository, mianhe mianhe ~~
 
 
 
